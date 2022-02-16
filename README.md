@@ -1,0 +1,1 @@
+# seminar-for-tech-newbies
